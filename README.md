@@ -1,0 +1,1 @@
+# diplom-part-2
